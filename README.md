@@ -5,4 +5,4 @@
 - 💬 Ask me about data science, machine learning, storytelling
 - 📫 How to reach me: adom6510@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm a Harry Potter crazy fan
+- ⚡ Fun fact: Very greateful
